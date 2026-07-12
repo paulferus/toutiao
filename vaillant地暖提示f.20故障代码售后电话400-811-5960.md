@@ -1,0 +1,655 @@
+vaillant地暖提示f.20故障代码售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月13日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括vaillant地暖提示f.20故障代码售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+vaillant地暖提示f.20故障代码售后电话400-811-596024小时售后服务热线上线（（2026年07月13日官网公布）最新公告）
+vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+vaillant地暖提示f.20故障代码售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+vaillant地暖提示f.20故障代码售后电话400-811-5960公司主营vaillant地暖提示f.20故障代码售后电话400-811-5960维修 →vaillant地暖提示f.20故障代码售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，vaillant地暖提示f.20故障代码售后电话400-811-5960服务承诺?.
+北京市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/6f0eb3c9fcee07d079a116ab25b17dd666410b57
+。
+南京市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/nickmagra/wenda/commit/a0ed09aaaba3ca468c7e27b06f4dfc22309bd027
+。
+秦皇岛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/c63dc0daef68e67a22b36c0170c055bf5a8b5fee
+。
+珠海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/paulferus/toutiao/commit/925890a6027611505377f0a3df45a852152a9c79
+。
+安康市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/bugbubby816/400/commit/525557b37471fa4ec7dc97cc53cb358dc37fcd79
+。
+安庆市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/nickmagra/wenda/commit/58d8675b1eedff52d7b86b5fce00dd063f535da1
+。
+鞍山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/ca046d8a212d0afbed998ff5de8d7626acca2eda
+。
+安阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/4b1becef7f7af4fd748e0d1fea931d6ca537be62
+。
+巴中市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/bugbubby816/400/commit/f32e9d9ebe769380dd033f58ea5e4446c2f6019e
+。
+百色市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/ed287d97f9e62bbe474dd7f189823382566f5d50
+。
+蚌埠市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/75869b855996e922833def0d0a1bd6e28eda98ef
+。
+保定市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/jardanai/jiadian/commit/5b816710b9a56133d65d31b59ccf87cdfe932165
+。
+宝鸡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/paulferus/toutiao/commit/9a76d2d4f01f783b88a955b87d6fd1779bc30d73
+。
+保山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/nickmagra/wenda/commit/6a0e8b9b00e46f0c71f907de3d7fbe040ea478d2
+。
+包头市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/jardanai/jiadian/commit/54040e7ed79f6f7c328e000de54e7f3a768b6d5e
+。
+北海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/bugbubby816/400/commit/c5f3943f2c39b5bf960426f87a8a5d942da2378c
+。
+本溪市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/paulferus/toutiao/commit/592cbf25f3ff47beaeb30ae2435d634af2084f85
+。
+滨州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/nickmagra/wenda/commit/2619f033a9e2045f23776bc3307e253330c285d1
+。
+博罗市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/bugbubby816/400/commit/5e98d77973f2478fbc569f39dc5eefcc844e0960
+。
+沧州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/jardanai/jiadian/commit/5f5249f747f91600f93d34d465232a38080348c3
+。
+长春市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/paulferus/toutiao/commit/0939c3cbf6106b4d32e41f9c47cba362461a9d92
+。
+常德市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/nickmagra/wenda/commit/833a97da032d05a4757aac59c8f615665ec6f80a
+。
+长葛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/bugbubby816/400/commit/241f63bac9fc8a6bcad2788c5c27c5576ad6e40f
+。
+长沙市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/40ee6fe03ff70ff0095a6e63e6ac12d5ea1f20b5
+。
+常熟市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/nickmagra/wenda/commit/2070bdb8f001afbd9125884ecaa31d49026f9dc3
+。
+长兴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/paulferus/toutiao/commit/a9d0d6a0fc7eeb39e15f27156ee46c693fdae6d6
+。
+长治市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/jardanai/jiadian/commit/af4bf83ad07deae69dfc521e4cbfe30e2009bf70
+。
+常州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/bugbubby816/400/commit/1933ad0a2139ff148035c7b74288edb5cd6868c6
+。
+巢湖市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/4d3f538872c971408e10ce6e32ceb96b7ce2851f
+。
+朝阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/paulferus/toutiao/commit/bc0216df4307c0af5875d4e530e6bf3e1ce68b31
+。
+潮州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/2d93a187b8b61732fb827f9f1ed56efb21c44d2d
+。
+郴州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/bugbubby816/400/commit/176e0465609783041a6d1b97e59f6e42210f8eea
+。
+承德市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/92da0f0b2354895466e5b054e1c37350adb16237
+。
+成都市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/paulferus/toutiao/commit/280512afbc2416c8839460b69b278040bd6d51f1
+。
+池州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/d56d1479bb653ad9e921f95e40120dff462a48e4
+。
+崇左市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/jardanai/jiadian/commit/1c711c0ab1f2bf45a9fc350e9f977efd2be3a2cf
+。
+滁州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/d32cd9b494eb7152d08a641a51200248b21b3b9a
+。
+慈溪市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/nickmagra/wenda/commit/fc6999e5a85e2098ca9b552be9053ccff1302c16
+。
+大丰市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/jardanai/jiadian/commit/5f2ce4d387211051717d2df131678fe9cc238876
+。
+大理市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/08b6c403af98aafbe648ec2efb2184a718f74588
+。
+大连市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/paulferus/toutiao/commit/549aa6bad2f7c312d499c8ad81436dd5e83c6688
+。
+大庆市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/nickmagra/wenda/commit/3ab84f723212775e3cd5c8431e31dfc2d8dedcbb
+。
+大同市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/jardanai/jiadian/commit/9a5c22b973efb754b65749444651b73283123c44
+。
+达州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/paulferus/toutiao/commit/88c651ef509efb79bc2a0755d4d097e0e7f80aa4
+。
+丹东市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/aa95b86447c9094346a81967cada797dc6f634c5
+。
+德清市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/nickmagra/wenda/commit/1b41a591279d52bcfb58eb159faf54e380af24a6
+。
+德阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/jardanai/jiadian/commit/f81017954e591987a0921a4f661e83bdd725ddf5
+。
+德州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/b60cd6178970a2a5a88e73a8df138cac0d19acf6
+。
+定州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/818540e11a5c87fe19d2787c5bfe8dac0d40798f
+。
+东海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/jardanai/jiadian/commit/5932958b4c0c12c54a887684a51620e6f2a599a8
+。
+东台市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/nickmagra/wenda/commit/e9f565bd7696ba622c90a5fc826fa64138049be7
+。
+东营市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/7f812058b9613becbe3a4a1b26d6637c7ef89055
+。
+东莞市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/d9cd0fa426afbb994ac354980c1302962aadb966
+。
+鄂尔市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/jardanai/jiadian/commit/af04dcee311f7dd4efc98f4cc410cd4a1c1f373e
+。
+鄂州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/8aad6779589f6a51776688fdf9ad8077b59148f5
+。
+恩施市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/92166d3e01eb04ec815323f32b495a10b290b8c1
+。
+防城港市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/jardanai/jiadian/commit/ca3137b00d23dd974a6168ebd76211841a73513b
+。
+佛山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/bugbubby816/400/commit/05a214d7b49b100bcd969f3d5b0c0e79d0457a7b
+。
+抚顺市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/02e38e6f4a8874151e4f5a9ed610ab154d6fcb91
+。
+阜新市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/jardanai/jiadian/commit/47f8926af04fa2b82b5d43f2c5e14297ec7d6047
+。
+阜阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/4c8fb7f0d66300484d81aff9da612ec9f20ccf07
+。
+抚州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/85ec66287b926f3b5e53037f5b39effe67346838
+。
+福州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/nickmagra/wenda/commit/7e439fdd9760b1285db21f985c1f32b119e61a4e
+。
+赣州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/paulferus/toutiao/commit/0580864fb0584b9d6cf871047f5cc25849daa284
+。
+馆陶市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/jardanai/jiadian/commit/8e47ebb1e9992191496a916e28f73867b57ac96d
+。
+广安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/nickmagra/wenda/commit/28f5b6339781ae9f4aea71417a4705f777482c04
+。
+广元市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/fb78674dc4d7822c31e6b4b8953dbde4a3978e07
+。
+广州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/65a6af9da99317991dd28dd0b69b5214fbea9544
+。
+贵港市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/jardanai/jiadian/commit/77a8f56b00ca263ef7cf7ea98900f0f059474ebc
+。
+桂林市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/bugbubby816/400/commit/d328f0062e62edb3a37e815993bf323c57a3cb2b
+。
+贵阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/78d0bc55936a68727c7b032abc408c31069893a2
+。
+哈尔滨市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/9d6658003f9bd756c26a6c172ac4641ab85e1d38
+。
+海安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/jardanai/jiadian/commit/2de362d53b0557fc3bc92538d88d1430bf43daa1
+。
+海口市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/9c8980a43b517d8fe536b6fc4054b135e8d3b795
+。
+海门市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/nickmagra/wenda/commit/3b4bd2783a357d102537ceec9837f565ae88bc59
+。
+海宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/paulferus/toutiao/commit/da0675800a14758ec1a3d9d53026e5aa69230754
+。
+邯郸市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/nickmagra/wenda/commit/ae70729dbba607481788d34988835cd62fcb6450
+。
+汉中市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/7b3a0f4c6cb97d67a8facaf22f3315a36ec4ea2a
+。
+杭州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/952d9ea08265537fb0547e622b5f7692d2358f36
+。
+鹤壁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/paulferus/toutiao/commit/50ecbf27b64fbeef24a927a3df59fb3236630f86
+。
+河池市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/jardanai/jiadian/commit/5cb1a1dd4c8a01c2c74b3a949de0abb2ed0a720a
+。
+合肥市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/d2631b9385e733b139d452fa36a54615fbee7410
+。
+河源市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/bugbubby816/400/commit/5571d49d88382ccbdab6c9a50a051f51bb239d24
+。
+菏泽市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/paulferus/toutiao/commit/3d3da8eb6cb83f4dfb1f7f2045534a863f9d85cf
+。
+贺州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/jardanai/jiadian/commit/b8cc5798dfe64e80bcf3325a7c679ed2e4b3e0e4
+。
+衡水市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/bugbubby816/400/commit/ab227cdacc5443f529d24d995cce3816c4832591
+。
+衡阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/nickmagra/wenda/commit/e945c6573c66cf7373447c7246bcfabcdbbe15f5
+。
+呼和浩特市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/paulferus/toutiao/commit/6034c494b1ed8e6b6f2427ee783013793d4f3caa
+。
+葫芦岛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/5048c443a6d14a97aa36371e4b658fc8d9c40169
+。
+湖州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/jardanai/jiadian/commit/513ff0e95a290965eb177e190dca07c235ac785b
+。
+淮安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/bugbubby816/400/commit/796f1efa527f25acb85bff589a2cd39d6fb166af
+。
+淮北市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/39cf27bfb7845038a6ef0a02cc93f326621094f5
+。
+怀化市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/nickmagra/wenda/commit/d9a974fde37c8ffab6631ca44118a1232b656d96
+。
+淮南市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/bbec2527f67ba07301682d41cd81ad15241fc25f
+。
+黄冈市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/jardanai/jiadian/commit/b1b5ca931061fe84249540a55a88b50cfc90798a
+。
+黄山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/bugbubby816/400/commit/245b6864b252f04b24b29cda94b5600ecc29f081
+。
+黄石市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/nickmagra/wenda/commit/c730d3a9516d679c92e45d7769dda7497982ba35
+。
+惠东市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/jardanai/jiadian/commit/3b69a74599460239672d743d39141c807027189d
+。
+惠州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/paulferus/toutiao/commit/c63ff7647998edf1c94e0ba877ec6da5eda6016f
+。
+霍邱市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/75f6f583d2537aa480697989edf20ad3c0dd0e4f
+。
+吉安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/nickmagra/wenda/commit/5d77c1e9856242fa96b99dc5a4b64b3fa6e9d200
+。
+吉林市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/b8c442df031875145b7b1687777b536ca64a82f3
+。
+济南市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/c2f4aed6440bd605fe4aa1d4dc8237a1a1d956bf
+。
+济宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/nickmagra/wenda/commit/b9f529070565c7329282494bf2fd0d6abef21d4b
+。
+济源市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/paulferus/toutiao/commit/dcc8fc698c31c97f23c6bfcdfb47f978476e8af0
+。
+佳木斯市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/bugbubby816/400/commit/ef0faff11da71b638786974537f71196603a4004
+。
+嘉善市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/jardanai/jiadian/commit/bd93f7b26ad6299a97cbad39be01277e0af90f64
+。
+嘉兴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/bugbubby816/400/commit/e3cc6e13ea139b6e8f1c8d574621dc5ff4064cd3
+。
+嘉峪关市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/nickmagra/wenda/commit/7fc44a2939f569909161497aa63582bffe44ff71
+。
+建湖市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/paulferus/toutiao/commit/baabe0d1ee24a5662493b67da122af85b0a3c354
+。
+江门市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/b53afb2e20b7b88ac0ad857eee9115a43ac44928
+。
+江阴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/nickmagra/wenda/commit/c2c9555e9a4a3a1178aeb2bca2cf39bd8503a086
+。
+焦作市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/c2bfb61b89ee5f0ea714aecd74e002edd5948202
+。
+揭阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/bugbubby816/400/commit/49ccc29304deb98c4555fe97bfcd07ee471559ce
+。
+金华市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/jardanai/jiadian/commit/52e13f4282cef795bf089a80c457b94ea23bed2f
+。
+晋江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/nickmagra/wenda/commit/c335ce9b42e577f8e5c01eb16e3f4392f4f077fb
+。
+锦州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/paulferus/toutiao/commit/8e41c977ddddadc02266540c31691f78d36b96d8
+。
+景德镇市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/bugbubby816/400/commit/8d2ad075224f858c8d8fde0e5ea49d0298e96aab
+。
+靖江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/jardanai/jiadian/commit/b42e2e3b561dea7fd264723934f6b5c7b5c61e54
+。
+荆门市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/bugbubby816/400/commit/61d78cf67aafade0dec86fe4579c0bb64c40b86e
+。
+荆州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/nickmagra/wenda/commit/2733681dad3472dfd2cc6f3032cc0ab0894f4a94
+。
+九江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/9db69a364bb904a61380fb8a5225a1b103dbbfc6
+。
+喀什市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/35c1d81ecb5e71a8cd10c08b2ad3493b6198a1fa
+。
+开封市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/nickmagra/wenda/commit/ffe1abb06e66df373c3790e47e8d40ccb7ab0e84
+。
+克拉玛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/paulferus/toutiao/commit/9658772f562a76aaf77c9d5801d959521522e9ea
+。
+垦利市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/bugbubby816/400/commit/a48add034858607fe0b0a92052b257d0792a287d
+。
+昆明市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/jardanai/jiadian/commit/a5ff53b8af13c37c3fbdb6e47c0562fcff6096e3
+。
+昆山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/e2dddfa86ea65e6da39726905b6a36ac9d868f7e
+。
+拉萨市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/paulferus/toutiao/commit/cf2070543dc8761a8e60dad56279db4666ce0896
+。
+来宾市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/bugbubby816/400/commit/1a8a53b17824ed30b66d42bc5a29bc9afd09f0a0
+。
+莱芜市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/dbc621a1bb5b1b22319189ac25968b646079c4f5
+。
+兰州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/bugbubby816/400/commit/fc53887c7d850a1a5c0b5c978b8816ae34334a37
+。
+廊坊市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/nickmagra/wenda/commit/2c8a4a62b849cb212482226f11cc7818f5db29ea
+。
+乐清市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/paulferus/toutiao/commit/98e94a2ede6648b8067cc88a0a37ab5ef6c97286
+。
+乐山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/jardanai/jiadian/commit/8e5863b9995abe373976d25b284fcec426a8ea08
+。
+丽水市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/nickmagra/wenda/commit/35a724dd6eb94f172b0a90735c8132314d3b8312
+。
+连云港市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/paulferus/toutiao/commit/2a7db6c4493b9dd9deaea51cbf3bc077ae7cefb0
+。
+凉山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/bugbubby816/400/commit/d3aaf3b9873810ffb4aeb3cb1e1d13958d9fbc8c
+。
+聊城市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/jardanai/jiadian/commit/f98d0e0637fa716047fd21e435f3c6f29b385748
+。
+辽阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/bugbubby816/400/commit/709d9e09b5689d9cc37a4959221022cc5f808379
+。
+临汾市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/nickmagra/wenda/commit/361ce3469239883053166402bee6c076f3482b36
+。
+临沂市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/paulferus/toutiao/commit/6ed276931bf61ac8535d0d661150cc858c52231d
+。
+六安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/jardanai/jiadian/commit/48706057231734bb0cfe414dd18f5b189d01e7cb
+。
+柳州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/6aaee4cc018acb87bf1dc2430f5a482348eec284
+。
+龙岩市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/nickmagra/wenda/commit/409fa792168971455ced9d044e6e0368f20c7c11
+。
+娄底市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/a0c20a1f29be0212a708b9f31c83402b65b77d89
+。
+洛阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/2b6d6482a9b7b2c0990c330f85287b109b6f2619
+。
+马鞍山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/bugbubby816/400/commit/0fcff838d5e02401d66875d309d90384a52530bc
+。
+茂名市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/4974fbedbf5c523b24916018678944a7fa3e47e5
+。
+眉山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/eaba2544bb957ea2da1962219368f3e1771133f0
+。
+梅州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/jardanai/jiadian/commit/a076496390f49b8f62f4187c74a5bddf24443032
+。
+绵阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/bugbubby816/400/commit/b676d8dad3b02c3621facc243794a47dcc0c21f0
+。
+明港市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/fac0ff152e8e869ff937361ea9a86b7b3ed7b456
+。
+牡丹江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/nickmagra/wenda/commit/052b60fd310ca844f28b59febbca131a3e58f501
+。
+南安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/jardanai/jiadian/commit/234de1da0c3f4f1d92199354ad49791a4a4b9aea
+。
+南昌市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/bugbubby816/400/commit/1babba82e2c8c1a9d579045d23be91a3cdcf800a
+。
+南充市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/3272cf941a3677cf6c8dfa4f8a27d7e446f26532
+。
+南京市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/nickmagra/wenda/commit/3122e1a38c341771b5ce59b0f95c885578879ca6
+。
+南宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/jardanai/jiadian/commit/da74159e7d312c327a7ff458e702925530f267e6
+。
+南平市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/bugbubby816/400/commit/0a55ad1b2322e84b76bdd85d358cbc9e2870b210
+。
+南通市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/paulferus/toutiao/commit/d09ad83ba694c0e1d2328596c3a430f7cdad9fa4
+。
+南阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/223666020016850e674e6218cffe4e406b48c65d
+。
+内江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/bugbubby816/400/commit/dd034ef4bf166d2c44151cf2cf62eda29b6e67b1
+。
+宁波市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/27b9ef3826f0ca93cb727453df354d89a6516900
+。
+宁德市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/9c70006ef25da05983128da9e78456eaacc6cd62
+。
+宁国市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/a3cef731b6b692223c879ea37d7a4a0ea71f33e5
+。
+盘锦市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/bugbubby816/400/commit/aa66a674afc6fd4b7eb2cf519780b6d4f4070d15
+。
+攀枝花市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/9a6ff140fcef37958a1b8e5b9894b37c7410e09f
+。
+平顶山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/paulferus/toutiao/commit/f7f3d1049bca3e40b4048371faadcb9ebfeecd30
+。
+萍乡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/nickmagra/wenda/commit/20154516488d7f8aea00da48d616fd501037ac1e
+。
+莆田市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/bugbubby816/400/commit/6940465ff6f03d2906b312c9f59000f3b38fabfd
+。
+启东市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/jardanai/jiadian/commit/0c78a118769b7ce2a96effc5183e0557e0a7bb71
+。
+齐齐哈尔市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/paulferus/toutiao/commit/cb51807ee4de8451293794c7ac9768f9e0b3ddcf
+。
+潜江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/nickmagra/wenda/commit/16f5d8d2a0a10ae303c1ca082c502c1bdf2c94b3
+。
+秦皇岛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/0699331d3aa8378b6f3715a501bf85d32de733a3
+。
+钦州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/8cc207dd611fcc6c3bbfa1191e60696c92d34c49
+。
+青岛市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/jardanai/jiadian/commit/8274815a55b0226035ceccd41d56ca059cf90692
+。
+清远市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/nickmagra/wenda/commit/7c7ecb17af36f9149aae15a75cac2e54a3f231f3
+。
+曲靖市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/bugbubby816/400/commit/2a906b6ebc776f9b4f87878d8d990128a41d8c42
+。
+泉州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/jardanai/jiadian/commit/6c2cb3d7e1aa054978f5f85b9ab5dfca50524efb
+。
+日照市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/paulferus/toutiao/commit/77c188b3ee3b027be37011119bfa8107f39afe07
+。
+如东市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/nickmagra/wenda/commit/5774b0f5cc4858bf1cd6d3b263d10bfba9ce1bc0
+。
+如皋市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/bugbubby816/400/commit/77968a09834d8d3123c7c804bef7ec3e85c149b5
+。
+瑞安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/jardanai/jiadian/commit/2b3fe1ae481205edd8b37927aa8d412393aa29fc
+。
+三门峡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/paulferus/toutiao/commit/5c0abec551eef7e8dae8fca10bbaa06fddc8ef81
+。
+三明市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/nickmagra/wenda/commit/74c6677ee03d2494a1d4dbd7949a02f4268e9cf5
+。
+三亚市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/bugbubby816/400/commit/91a0d61811f9501b8a0310496ce2627ad5851750
+。
+汕头市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/jardanai/jiadian/commit/99995b66f631634af77bf3f101057e960f991a96
+。
+汕尾市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/paulferus/toutiao/commit/d3eaf4a667c8a0cd72225de1b2bee2ca93dfc810
+。
+上海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/bugbubby816/400/commit/e47b44bc87f5a913143243e706ed82df80e6c830
+。
+商丘市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/nickmagra/wenda/commit/17b1cf13e6c18e7ae23d93e235b6359ce346a6ad
+。
+上饶市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/jardanai/jiadian/commit/4a9eb34546589e7bc1a44caab3d59d1b312b1143
+。
+韶关市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/paulferus/toutiao/commit/e82802bc65b42d3832cfa43e0891b3d0515f1f7e
+。
+绍兴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/bugbubby816/400/commit/0a67c53d726c3412592e41216e1afb7726992ae0
+。
+邵阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/nickmagra/wenda/commit/13223839a7831233dfe66a1efb8b0571ade3be4a
+。
+神农架市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/jardanai/jiadian/commit/adfbbb8e8f1493f0ecee97bea59fe9b7b8a1cb1d
+。
+沈阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/paulferus/toutiao/commit/e96fe98d4ed297aea59b93d7b315ca0b1197dd50
+。
+深圳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/bugbubby816/400/commit/750681b7bc3cbdd1a2994de64cd870250e1f5968
+。
+石河子市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/nickmagra/wenda/commit/8ebaac3d39f27c39c52530bd53c762b859c6473d
+。
+石家庄市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/paulferus/toutiao/commit/f8c5a5191b80d9ca63836d9d9a4cc7c5d9ce9f42
+。
+石狮市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/jardanai/jiadian/commit/d7a39125076677d95af7b21feb3b39e1f2fb3b87
+。
+十堰市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/bugbubby816/400/commit/5cafd860afe95e1f9f0a94129ee828df10667f8a
+。
+寿光市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/nickmagra/wenda/commit/39072e9847941e13399a44e88078573a984c3288
+。
+顺德市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/58339cde33e24bfcb49788f952d473ca998f8762
+。
+四平市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/paulferus/toutiao/commit/2385b8813524a93d7e80f4a30fad3ba623e6c05e
+。
+宿迁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/bugbubby816/400/commit/fa4cbcde87e120a37da89fe982b1bdcf1d055818
+。
+苏州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/jardanai/jiadian/commit/cf1ca5329a7490e0f75eec6d71995d64ed1bf021
+。
+宿州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/nickmagra/wenda/commit/8ca9edc1a491c7c4244d18bbfa6a792bf06c98c6
+。
+遂宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/paulferus/toutiao/commit/4bc8203b58ab40235292840c3a53fbed434ecb1a
+。
+随州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/882435bf69903ff70802458d72d6963568b7a8dd
+。
+泰安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/1731a51ada999abcd28f42544bda78f010f39f13
+。
+台山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/paulferus/toutiao/commit/79ba1cafe90795545f28bf67764f2d4ed2c8b147
+。
+泰兴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/jardanai/jiadian/commit/a7db4eb271d99c4ee595fc98a2532eed34e2b254
+。
+太原市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/bugbubby816/400/commit/8c91ef528e462b0a9ae8dac1fd83e4881a4394ab
+。
+泰州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/bd4c619231de8ed0aa4336f3dd4e2573cc5f427d
+。
+唐山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/211ff5fa7463ae7ae3b7daaa37b4e672e035a102
+。
+天长市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/paulferus/toutiao/commit/ccd0c91e678e41ae54383022c69a342f7cb0ac1d
+。
+天津市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/bugbubby816/400/commit/a7f2b9cdfe8b1401ef926ec698be6c50ad5498dd
+。
+天门市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/72a6448f53023be9fd71f05312bdcae107957e92
+。
+天水市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/jardanai/jiadian/commit/2d328657952f8e27cbe43296349785100d90dc2f
+。
+铁岭市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/paulferus/toutiao/commit/c8e3579c3b744bce1914ec8ce59cd825a3c1e87e
+。
+桐城市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/bugbubby816/400/commit/56a2aec1a3401dc3b71b3250e666183bb13e27ea
+。
+铜川市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/57754c69429264f0065d329a9a4dfed5ebf4598f
+。
+铜陵市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/paulferus/toutiao/commit/ac896e2aa02696db31fac8abdcd7c84ba1a053c4
+。
+桐乡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/jardanai/jiadian/commit/cd446cbd640fca2e02b1a143168dd31df5459cd6
+。
+瓦房店市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/bugbubby816/400/commit/9c6fce7993073506e5894db5155e9e788b74c73a
+。
+潍坊市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/nickmagra/wenda/commit/6cd67b5cd47bf3c5b4ec1e7836381b0b1fa79647
+。
+威海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/jardanai/jiadian/commit/6cba31b8a4135ca6c58f2e2d2e754ce9a69a82fb
+。
+温岭市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/baabbb9bafe764403b6ca1aaec09856eba6c1e08
+。
+温州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/bugbubby816/400/commit/2780afa53a9578e66b0a51a95a98244ed8fa84bb
+。
+武汉市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/jardanai/jiadian/commit/b72a5b33f4d8466e73d084b1f5debef28f18cb99
+。
+芜湖市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/nickmagra/wenda/commit/13045ccb19f5d27b327fabf0aa1b3ebc358ed55a
+。
+乌鲁木齐市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/paulferus/toutiao/commit/757ed653a98ffb63e206f93a79b127a9f59be491
+。
+无锡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/4140674979fc42c7b083b0a42434161c4f28aa5e
+。
+武夷山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/nickmagra/wenda/commit/ba5dd32108fbe0f10f8cfacf0bc810226ada586d
+。
+梧州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/paulferus/toutiao/commit/37b82f4056dbf7ceba0ad34ffe97d0f47203478e
+。
+西安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/jardanai/jiadian/commit/d29badd7ece6c06c4ecbd12c64d7a92e98a70fc9
+。
+西宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/bugbubby816/400/commit/62a8ef67aaa59db118113160aebd5216b96dcc64
+。
+厦门市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/nickmagra/wenda/commit/00645116c98bcac58f63e3a6b1dca26d45768f1a
+。
+咸宁市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/jardanai/jiadian/commit/84acf08d59edbef43db0ad3a002b79430cb5e530
+。
+仙桃市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/5b8049d49e4f160bde907d22cafb46cb9d378c9c
+。
+咸阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/67e30fca6863a32a0860d3f9d5db4cb36ed423c4
+。
+襄樊市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/jardanai/jiadian/commit/31d729d0442f2ef84ea7634706dbd9829a5c45e4
+。
+象山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/nickmagra/wenda/commit/158bf0bad3fcebd83b4a38c77e9e97a1d8e4f28a
+。
+湘潭市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/paulferus/toutiao/commit/9cfc801b4a7bd09cd5f540b657b0ec25665c33f6
+。
+湘西市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/3c9626fb947b6740ee524bfb3c7d765d15221535
+。
+襄阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/nickmagra/wenda/commit/4149b2565a9896d46385734f777422e1c556cfec
+。
+孝感市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/paulferus/toutiao/commit/52a449b69f72fa2ca9443f25c7443d225cd9f094
+。
+萧山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/jardanai/jiadian/commit/5625e601ae199c46d59150e83fdd6b7926c95376
+。
+新乡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/bugbubby816/400/commit/6de4106230054e3816d5c80d130bad4fda08f700
+。
+信阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/a68ca8648469dec7efdf0b13e49457da9ef6f20d
+。
+新沂市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/jardanai/jiadian/commit/62ae2e567f386e281210c831e3fb537333bc2acb
+。
+新余市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/a54f70b9f33d6e721d1bdb09664d80a0d35af1ab
+。
+兴化市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/bugbubby816/400/commit/5d4a0c9aaec8205b581ea3b7aae4d26c667d0ed4
+。
+邢台市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/paulferus/toutiao/commit/1086e52ca9c82198850b5937f2847ad3c841b945
+。
+许昌市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/jardanai/jiadian/commit/77394f28ca40fb6f02c88dc483fb0c79a83c02da
+。
+徐州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/857ee4055238f76b40a42c6b3291e08596491167
+。
+宣城市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/bugbubby816/400/commit/c58ca99681e93a6474bab0548249181904464616
+。
+雅安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/paulferus/toutiao/commit/4510f9bbc1713252e6b2fc3166ee0b472534df46
+。
+延安市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/nickmagra/wenda/commit/06b7bc7329c15d13e3b63c297f718336b91f5193
+。
+盐城市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/jardanai/jiadian/commit/c4e682f1887155e10c67da44d0b1697a325d06bc
+。
+烟台市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/bugbubby816/400/commit/cc4891e73fb3bca6eda770b3f583cc7dfc07b816
+。
+阳春市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/nickmagra/wenda/commit/2520bb08bd02067f388400b4faf497aacafb8d19
+。
+阳江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/paulferus/toutiao/commit/121261ce42d28995ca2673c10b157fdeddbd8d37
+。
+阳泉市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/jardanai/jiadian/commit/f326ccd322aba4b3c44bf1dddd80815197358c66
+。
+扬中市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/bugbubby816/400/commit/52be4f8424856c06f25be97a4fadccd6cdd3de70
+。
+扬州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/paulferus/toutiao/commit/7bc8f00400499b985463b7ca382a29c1aa86a006
+。
+宜宾市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/jardanai/jiadian/commit/f8dd5ba2733aa30c72e88efc2f537881d96f3d5f
+。
+宜昌市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/nickmagra/wenda/commit/6a22aff9fad0927b8403e7450127cc76cb972945
+。
+宜春市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/bugbubby816/400/commit/f33517357c0d81daebd13d4b09baa1d255fb4aa5
+。
+宜都市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/paulferus/toutiao/commit/e805224e3d625c32c18c8e194e59cb1d8f491e9a
+。
+义乌市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/nickmagra/wenda/commit/9a50f3b6280674bdee375482de01f2865b574039
+。
+宜兴市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/bugbubby816/400/commit/574a093aad905fbc29609c0fcbc33c6baf619a6d
+。
+益阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/jardanai/jiadian/commit/6fc2d01a648a410c0e4fa5131ca60bc936c417ff
+。
+银川市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/nickmagra/wenda/commit/11843c4b5ed55ed6d5a5409aa20698e6e12b9637
+。
+营口市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/paulferus/toutiao/commit/2ac36da5a315b0fc906a6d0751f808437a223aec
+。
+鹰潭市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/jardanai/jiadian/commit/183b1b0a92311c7be3558a242cb3043e884d21f8
+。
+永新市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/bugbubby816/400/commit/db06482381a7e77d1e627de96fcb00514dc48d86
+。
+永州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/paulferus/toutiao/commit/78694fd11db66116d1cd0d440574f098c7ac1831
+。
+榆林市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/jardanai/jiadian/commit/f292c6f4be09ca4d337b284ba1b02302c80b2f90
+。
+玉林市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/d026e7375dc29db4618e77f49e3383611e6f6ad3
+。
+玉溪市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/bugbubby816/400/commit/c5c02722c5ab61a5715e0129ba7a2325e2c004d0
+。
+余姚市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/paulferus/toutiao/commit/1888aa34761f6ae17e1f54140fe91e85655c0bae
+。
+禹州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/nickmagra/wenda/commit/db7cb543643ab86362e9a524d9a666457b6953c2
+。
+岳阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/bugbubby816/400/commit/a9ac8fa1dcf9f107d7e9d216c14377b90d7a0f4e
+。
+云浮市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/jardanai/jiadian/commit/15bebd6c9d4a25671cbd60654835097e324c5831
+。
+枣庄市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/jardanai/jiadian/commit/a09ecf031e44e51aabfbb8961df36cd49297ff80
+。
+湛江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/paulferus/toutiao/commit/e31634eda952d6042b919350c995fac7fff69d52
+。
+张家界市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/nickmagra/wenda/commit/3f29fc0e210265349024ea5b7da958c4d61b23f5
+。
+张家口市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/bugbubby816/400/commit/3b4d53599b467dcf41ec2c9d19e23ae86028ff63
+。
+章丘市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/paulferus/toutiao/commit/bc12edfb7737762848e41e4148ae499109b03b7e
+。
+漳州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/jardanai/jiadian/commit/3e646d549403359be8467a68cacbdcc2de82c8af
+。
+肇庆市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/nickmagra/wenda/commit/9fa2664f88b9319f7ba9117d3cd7169808f26f35
+。
+镇江市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/bugbubby816/400/commit/7a9af05b146264aea1072a73a87820e90e83ef0f
+。
+郑州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/paulferus/toutiao/commit/b7ec4f15313af13b3bbdf21927ab24248ca0a7fb
+。
+重庆市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/6001b603cc8c422acb5967655f5cef58a8f0ec08
+。
+中山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/nickmagra/wenda/commit/84731a760e0166b3e7cfe40c509ac3eab9a5954a
+。
+周口市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/bugbubby816/400/commit/284c31f77228829d4233a2be0d06584e8f7fd1f7
+。
+舟山市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/nickmagra/wenda/commit/1f8dd58dbd63afca37bde57dd3821acbefe1f459
+。
+诸城市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/jardanai/jiadian/commit/b281d0b82ad522af6b939767ec27e52506ce113f
+。
+珠海市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/paulferus/toutiao/commit/cef0d75d191a465025ef0051b646c74c568eb1dc
+。
+株洲市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/bugbubby816/400/commit/e4c7e0e7fdfdcc751dd42d4116fc4a6efd61d5f5
+。
+诸暨市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/jardanai/jiadian/commit/a9c20940e00f7e26b0325c4cb4b9a9f90781236a
+。
+庄河市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/paulferus/toutiao/commit/884914c682f704059fa57946e8a301200318c970
+。
+自贡市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/nickmagra/wenda/commit/68daa814ae81d08b9cbc97de5d03ea3833d428de
+。
+资阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/bugbubby816/400/commit/6b0c14a3f0b0b7ed15bc89b4b8d9748d9284f07c
+。
+遵义市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/paulferus/toutiao/commit/faf66019d79d300f386ad7f9d3cd8bc138cbce5b
+。
+漯河市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/jardanai/jiadian/commit/579a5d3c7a52a11e963b503337fdd0a77ed4c511
+。
+鄢陵市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/nickmagra/wenda/commit/1065a3985876e5ab548db33760a09ba4161b766e
+。
+沭阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/bugbubby816/400/commit/637c58f1af921ead5fa28303e5f15322b960a155
+。
+濮阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/jardanai/jiadian/commit/ebf2c5bac34e26b3c7b3b9ac521e5d6d6766e2b0
+。
+溧阳市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/nickmagra/wenda/commit/ec6554d5b946eab732483a04a2b44cbe259238fd
+。
+泸州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/paulferus/toutiao/commit/28a7e9377168cf38adc35e0609fb4eb4bbda5aba
+。
+衢州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/bugbubby816/400/commit/329ef755a642881d3a66c7b708cc49b2baa177d2
+。
+亳州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/jardanai/jiadian/commit/34492eb0a2e2cd1066dec200bc308443066eab63
+。
+邳州市vaillant地暖提示f.20故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/paulferus/toutiao/commit/87239cbb3b55afc2d90729567464ebac983efb4e
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月13日04时40分58秒*
+*数据来源：新浪财经、公开媒体报道*
